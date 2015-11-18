@@ -10,13 +10,13 @@
 
 *Serves 6*
 
-**NUTRIONAL INFO: PER SERVING**
+### Nutritional Info (Per serving)
 
 KCAL | PROTEIN | CARBS | FAT |SATURATES | FIBRE | SUGAR | SALT
 :------------: | :-------------: | :------------: | :-------------: | :-------------: | :-------------: | :-------------: | :-------------:
 853 | 5g  | 44g | 73g | 42g | 0g | 35g | 0.25g
 
-# Ingredients 
+## Ingredients 
 
 * 568ml pot double cream
 * `250g tub mascarpone`
@@ -27,7 +27,7 @@ KCAL | PROTEIN | CARBS | FAT |SATURATES | FIBRE | SUGAR | SALT
 * 25g chunk dark chocolate
 * `2 tsp cocoa powder`
 
-#Method
+## Method
 
 1. Put the cream, mascarpone, Marsala and sugar in a large bowl. Whisk until the cream and mascarpone have completely combined and have the consistency of thickly whipped cream.
 
