@@ -35,14 +35,14 @@ KCAL | PROTEIN | CARBS | FAT |SATURATES | FIBRE | SUGAR | SALT
 ![Mascarpone](http://1.bp.blogspot.com/-hfKAR7Ke6n0/T46jAiJUPhI/AAAAAAAAJAY/BCBXRJ8cGZg/s400/2020mascarpone.jpg =300x200)
 
 
-2. Get your serving dish ready. 
-3. Put the coffee into a shallow dish and dip in a few sponge fingers at a time, turning for a few secs until they are nicely soaked, but not soggy. 
-4. Layer these into your dish until you have used half the biscuits, then spread over half of the creamy mixture. 
-5. Using the coarse side of the grater, grate over most of the chocolate. 
-6. Then repeat the layers (you should use up all the coffee), finishing with the creamy layer.
+3. Get your serving dish ready. 
+4. Put the coffee into a shallow dish and dip in a few sponge fingers at a time, turning for a few secs until they are nicely soaked, but not soggy. 
+5. Layer these into your dish until you have used half the biscuits, then spread over half of the creamy mixture. 
+6. Using the coarse side of the grater, grate over most of the chocolate. 
+7. Then repeat the layers (you should use up all the coffee), finishing with the creamy layer.
 
 ![Fingers](https://crustabakes.files.wordpress.com/2011/06/68-tiramisu.jpg =300x250)
 
-7. Cover and chill for a few hrs or overnight. This can now be kept in the fridge for up to 2 days. To serve, dust with cocoa powder and grate over the remainder of the chocolate.
+8. Cover and chill for a few hrs or overnight. This can now be kept in the fridge for up to 2 days. To serve, dust with cocoa powder and grate over the remainder of the chocolate.
 
 ![EAT!](http://i.stack.imgur.com/it6xV.jpg =300x200)
