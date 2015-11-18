@@ -29,7 +29,7 @@ KCAL | PROTEIN | CARBS | FAT |SATURATES | FIBRE | SUGAR | SALT
 
 ## Method
 
-1. Put the cream, mascarpone, Marsala and sugar in a large bowl. Whisk until the cream and mascarpone have completely combined and have the consistency of thickly whipped cream.
+1. Put the cream, mascarpone, marsala and sugar in a large bowl. Whisk until the cream and mascarpone have completely combined and have the consistency of thickly whipped cream.
 
 ![Mascarpone](http://1.bp.blogspot.com/-hfKAR7Ke6n0/T46jAiJUPhI/AAAAAAAAJAY/BCBXRJ8cGZg/s400/2020mascarpone.jpg =300x200)
 
